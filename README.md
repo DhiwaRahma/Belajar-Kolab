@@ -1,2 +1,2 @@
 # Belajar Kolab
-Mari Kolaborasu
+Mari Kolaborasi suka
