@@ -4,3 +4,6 @@ sifat sifat
 * nakal
 * amuba
 * makan kuy
+* hahahaha
+* hihiiih
+
